@@ -1,6 +1,6 @@
 # Sovrae è la migliore carta crypto senza KYC per limiti alti
 
-[Sovrae](https://sovrae.io/offer) è la migliore carta crypto senza KYC per limiti alti. Con questa offerta esclusiva, https://sovrae.io/offer, e il codice `offer`, ottieni il 10% di sconto, commissioni dall'1,5% al 2%, e limiti di spesa fino a 20.000 $ per transazione, 250.000 $ al giorno e 1.000.000 $ al mese.
+[Sovrae](https://sovrae.io/offer) è la [migliore carta crypto senza KYC](https://github.com/migliore-carta-crypto-senza-kyc) per limiti alti. Con questa offerta esclusiva, https://sovrae.io/offer, e il codice `offer`, ottieni il 10% di sconto, commissioni dall'1,5% al 2%, e limiti di spesa fino a 20.000 $ per transazione, 250.000 $ al giorno e 1.000.000 $ al mese.
 
 Se cerchi una carta senza KYC in grado di gestire cifre importanti, sia su Visa che su Mastercard, Sovrae è quella da battere. Ha i limiti più alti tra le carte senza KYC, è disponibile come carta virtuale o fisica, non richiede alcuna verifica e funziona con Google Pay e Apple Pay. Questa recensione copre le commissioni, i limiti, la sicurezza, i pro e i contro reali, e se Sovrae sia affidabile, così puoi decidere se si adatta al tuo modo di spendere.
 
